@@ -1,1 +1,1 @@
-# mhmnotice-
+Wellcome to Madhusudan Hore Mahavidyalaya 
